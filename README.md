@@ -1,0 +1,1 @@
+The Legend of Zelda and its associated assets are © Nintendo and their respective rights holders. This was an unofficial, noncommercial project created for educational purposes and is not affiliated or endorsed by Nintendo.
